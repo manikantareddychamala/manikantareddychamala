@@ -9,7 +9,7 @@
 
 - 🔭 I’m currently working on [predecting real estate prices using linear regression and support vector machine in machine learning](https://github.com/manikantareddychamala/New-one)
 
-- 🌱 I’m currently learning **Devoops**
+- 🌱 I’m currently learning **Datascience**
 
 - 👨‍💻 All of my projects are available at [https://github.com/manikantareddychamala/New-one](https://github.com/manikantareddychamala/New-one)
 
