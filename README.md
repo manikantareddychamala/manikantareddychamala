@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **cr282@srmist.edu.in and manikantareddychamala@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/Manic/Downloads/Resume_mani.resume_for_CHAMALA_REDDY%20(1)%20(2).pdf](file:///C:/Users/Manic/Downloads/Resume_mani.resume_for_CHAMALA_REDDY%20(1)%20(2).pdf)
+- 📄 Know about my experiences [https://drive.google.com/drive/home)
 
 - ⚡ Fun fact **I am funny**
 
