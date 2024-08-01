@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **cr282@srmist.edu.in and manikantareddychamala@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/home)
+- 📄 Know about my experiences [https://drive.google.com/file/d/14q6jbstJNNHOaZgOnv8bjWzQ6U62dDlo/view?usp=sharing)
 
 - ⚡ Fun fact **I am funny**
 
